@@ -4,7 +4,7 @@
 
 🔍 Passionate about financial analysis, data-driven decision making, and solving real-world business problems.  
 💡 Skilled in financial modeling, valuation, and business intelligence tools.  
-💼 Experience:  ekincare | KPMG | PVRS | Zappkode Solutions  
+💼 Experience:  ekincare | KPMG | PVRS | Zappkode Solutions 
 🎯 Interested in roles in Finance role. 
 
 ---
